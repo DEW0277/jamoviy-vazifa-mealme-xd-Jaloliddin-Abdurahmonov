@@ -1,0 +1,1 @@
+# jamoviy-vazifa-mealme-xd-Jaloliddin-Abdurahmonov
